@@ -7,4 +7,4 @@ A Place for all things relating to the customer success pair Sam &amp; Dave
 - [60 Minute Meeting](https://calendly.com/d/z75-4md-n3y/meeting-with-customer-success-team-60-minutes)
 
 ### Weekly Retrospective
-[Link to Miro Board](https://www.google.com/url?q=https%3A%2F%2Fmiro.com%2Fapp%2Fboard%2FuXjVMes1_h0%3D%2F&sa=D&ust=1683732420000000&usg=AOvVaw25buSkbwExtMX5g9TlR9vP)]
+[Link to Miro Board](https://www.google.com/url?q=https%3A%2F%2Fmiro.com%2Fapp%2Fboard%2FuXjVMes1_h0%3D%2F&sa=D&ust=1683732420000000&usg=AOvVaw25buSkbwExtMX5g9TlR9vP)
